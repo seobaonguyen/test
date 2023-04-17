@@ -1,16 +1,13 @@
 Sàn mua bán coin BaoNguyenP2P chuyên mua bán các đồng nội đô Usdt, chuyển đô lên các sàn Trade Bo nhanh gọn giá rẻ. Hoạt động 24/7 hoàn toàn tự động.
 
-Địa chỉ: Ngõ 510, Thị Trấn Thắng, Bắc Giang, Việt Nam
+Địa chỉ: Thị Trấn Thắng, Bắc Giang, Việt Nam
 
 Website: https://baonguyenp2p.vn/
 
-Hotline: 0819822222
-
-Email: baonguyenp2p.vn@gmail.com
 
 Pinterest: https://www.pinterest.com/baonguyenp2p/
 
-Web2: https://baonguyenpaypal.com/dich-vu-mua-ban-usdt-uy-tin
+Web2: https://baonguyenpaypal.com/
 
 #muabanusdt #muabantether #muabancoin #muabanwinwefinex #antoan
 
@@ -18,79 +15,31 @@ Mua usdt ,  bán usdt sang vnd , mua moonata , mua vista trade , mua lavas , mu
 
 https://baonguyenusdt.vn/
 
-https://baonguyenp2p.vn/mua/usdt/
+https://baonguyenusdt.vn/mua/fibowin2/
 
-https://baonguyenp2p.vn/ban/usdt/
+https://baonguyenusdt.vn/mua/bitmeta-trade/
 
-https://baonguyenp2p.vn/mua/busd/
+https://baonguyenusdt.vn/mua/cryptech-vip/
 
-https://baonguyenp2p.vn/mua/usdc/
+https://baonguyenusdt.vn/mua/skbit3-net/
 
-https://baonguyenp2p.vn/mua/central-vip/
+https://baonguyenusdt.vn/mua/bizkub3-net/
 
-https://baonguyenp2p.vn/mua/vista-trade/
+https://baonguyenusdt.vn/mua/ltptrade-net/
 
-https://baonguyenp2p.vn/mua/bitono/
+https://baonguyenusdt.vn/mua/bullpro3-net/
 
-https://baonguyenp2p.vn/mua/aresbo/
+https://baonguyenusdt.vn/mua/tiktak-2-trade/
 
-https://baonguyenp2p.vn/mua/coinfinex/
+https://baonguyenusdt.vn/mua/derotrade/
 
-https://baonguyenp2p.vn/mua/kitanex/
+https://baonguyenusdt.vn/mua/shiden-pro/
 
-https://baonguyenp2p.vn/mua/deniex/
+https://baonguyenusdt.vn/mua/ravo-finance3/
 
-https://baonguyenp2p.vn/mua/remitex/
+https://baonguyenusdt.vn/mua/tlctrade-net/
 
-https://baonguyenp2p.vn/mua/binanex/
-
-https://baonguyenp2p.vn/mua/pocinex/
-
-https://baonguyenp2p.vn/mua/bitiva/
-
-https://baonguyenp2p.vn/mua/exbase/
-
-https://baonguyenp2p.vn/mua/shiden/
-
-https://baonguyenp2p.vn/mua/dero-trade/
-
-https://baonguyenp2p.vn/mua/1point/
-
-https://baonguyenp2p.vn/mua/ladytrade/
-
-https://baonguyenp2p.vn/mua/bullpro/
-
-https://baonguyenp2p.vn/mua/ecofi/
-
-https://baonguyenp2p.vn/mua/tlctrade/
-
-https://baonguyenp2p.vn/mua/ravo/
-
-https://baonguyenp2p.vn/mua/tiktak/
-
-https://baonguyenp2p.vn/mua/cryptech/
-
-https://baonguyenp2p.vn/mua/ltptrade/
-
-https://baonguyenp2p.vn/mua/bitmeta/
-
-https://baonguyenp2p.vn/mua/linden-trade/
-
-https://baonguyenp2p.vn/mua/fibowin/
-
-https://baonguyenp2p.vn/mua/bodefi/
-
-https://baonguyenp2p.vn/mua/bizkub/
-
-https://baonguyenp2p.vn/mua/moonata/
-
-https://baonguyenp2p.vn/mua/skbit/
-
-https://baonguyenp2p.vn/mua/didi-biz/
-
-https://baonguyenp2p.vn/mua/monera/
-
-https://baonguyenp2p.vn/mua/lavas/
+https://baonguyenusdt.vn/mua/monera-net/
 
 https://www.behance.net/baonguyenp2p
 
@@ -475,3 +424,131 @@ https://www.sbnation.com/users/baonguyenp2pvn
 https://genius.com/baonguyenp2pvn
 
 http://www.mappery.com/user.php?name=baonguyenp2pvn
+https://baonguyenusdt.quora.com/
+https://linktr.ee/baonguyenusdtvn
+https://about.me/baonguyenusdt/
+https://www.scoop.it/topic/baonguyenusdt
+https://www.instagram.com/baonguyenusdt/
+https://www.linkedin.com/in/baonguyenusdt
+https://tawk.to/baonguyenusdt
+https://ko-fi.com/post/Gioi-thieu-ve-website-mua-ban-USDT-Bep20-gia-re-F1F0KD28F
+https://social.msdn.microsoft.com/Profile/BaoNguyenUsdt
+https://www.mindef.gov.bn/survey/Lists/PRU%20Survey/DispForm.aspx?ID=14000
+https://www.bahamaslocal.com/userprofile/1/198050/baonguyenusdtvn.html
+https://www.anobii.com/en/013ee3c580e8ea6f3e/profile/activity
+https://gifyu.com/baonguyenusdtvn
+https://qiita.com/muabanusdtvip
+https://glose.com/u/baonguyenusdtvn
+https://baonguyenusdtvn.contently.com/
+https://tinhte.vn/members/baonguyenusdt.2973396/
+https://tinhte.vn/profile/baonguyenusdt.2973396/
+https://infogram.com/mua-usdt-bep20-baonguyenusdt-1hdw2jp7j3pxp2l?live
+https://issuu.com/baonguyenusdtvn
+https://www.apaci.com.au/UserProfile/tabid/43/userId/93065/Default.aspx
+https://www.deviantart.com/baonguyenusdtvn/about
+https://gitlab.pavlovia.org/snippets/5199
+http://onlineboxing.net/jforum/user/profile/230785.page
+https://co.pinterest.com/nguyentrongbao1/
+https://mastodon.social/@baonguyenusdt
+https://www.behance.net/baonguyntrng
+https://fliphtml5.com/homepage/vwtek
+https://diendan.hocmai.vn/members/hungnguyenbn.2663210/
+http://www.rohitab.com/discuss/user/582919-baonguyenusdt/
+https://www.instapaper.com/p/9988004
+https://bbpress.org/forums/profile/baonguyenusdt/
+https://folkd.com/user/magiamgiashopee24h
+https://forumketqua.net/members/baonguyen93bg.282071/
+https://diendan.congcuxoso.com/members/baonguyen93.95275/
+https://stackoverflow.com/users/19584524/baonguyenusdt
+https://iszene.com/user-198501.html
+https://www.otofun.net/members/baonguyenbg93.816217/#about
+http://forum.vietmoz.net/members/bao-nguyen.19670/
+https://tinhte.vn/profile/baonguyenbg93.2931315/
+https://www.techrum.vn/members/baonguyenbg93.209886/#about
+https://www.producthunt.com/@baonguyenusdt
+https://slashdot.org/submission/17215780/about
+https://www.mixcloud.com/baonguyenusdt/
+https://vietfones.vn/forum/members/baonguyenbg93.226626/
+https://www.xosothantai.com/members/anhkhonghieu.505088/
+https://vi.gravatar.com/baonguyenusdt
+https://devpost.com/baonguyenusdt-vn
+https://pubhtml5.com/homepage/numq/
+https://sketchfab.com/baonguyenusdt
+https://qiita.com/baonguyenusdt
+https://myanimelist.net/profile/baonguyenusdt
+https://letterboxd.com/baonguyenusdt/
+https://tapas.io/baonguyenusdtvn
+https://www.myminifactory.com/users/baonguyenusdt
+https://tuoitreit.vn/members/baonguyenbg.100829/
+https://www.lamchame.com/forum/members/pham-lan-huong.1014395/
+https://os.mbed.com/users/baonguyenusdt/
+https://www.longisland.com/profile/baonguyenusdt
+/////chưa copy
+https://www.wishlistr.com/baonguyenusdt
+https://www.free-ebooks.net/profile/1423858/baonguyenusdt
+http://www.nfomedia.com/profile?uid=rKhYZdB
+https://www.trainsim.com/vbts/member.php?569933-baonguyenusdt
+https://qooh.me/baonguyenusdt
+https://voz.vn/u/baonguyenbg93.1821244/#about
+https://www.rctech.net/forum/members/baonguyenusdt-281434.html
+https://www.huntingnet.com/forum/members/baonguyenusdt.html
+https://www.hebergementweb.org/members/baonguyenusdt.271926/
+http://onlineboxing.net/jforum/user/profile/189080.page
+https://www.webtoolhub.com/profile.aspx?user=42309665
+https://www.hulkshare.com/baonguyenusdt
+https://issuu.com/baonguyenusdt
+https://www.skillshare.com/profile/Bao-Nguyen/424987617
+https://www.goodreads.com/user/show/153992968-baonguyenusdt
+https://soundcloud.com/baonguyenusdt
+https://hub.docker.com/u/baonguyenusdt
+https://vimeo.com/baonguyenusdt
+https://www.wattpad.com/user/baonguyenusdt
+https://public.sitejot.com/baonguyen93.html
+https://www.quora.com/profile/BaoNguyenUsdt
+https://www.pearltrees.com/baonguyenusdt/item458229512
+https://list.ly/baonguyenusdt-vn/
+https://dzone.com/users/4777327/baonguyenusdt.html
+https://docs.google.com/file/d/1hm525zmhOesuMWWxhjeh1LD492s6BPVK
+https://www.magcloud.com/user/baonguyenusdt
+https://nootheme.com/forums/users/baonguyenusdt/
+https://www.veoh.com/users/baonguyenusdt
+https://forums.prosportsdaily.com/member.php?1291210-baonguyenusdt
+https://myopportunity.com/profile/bo-nguyn/nw
+http://hawkee.com/profile/1868668/
+http://www.heromachine.com/forums/users/baonguyenusdt/
+https://timeswriter.com/members/baonguyenusdt/profile/
+https://wefunder.com/baonguyenusdt
+https://forum.acronis.com/it/user/417108
+https://englishbaby.com/findfriends/gallery/detail/2407162
+https://myspace.com/baonguyenusdt
+http://www.lawrence.com/users/baonguyenusdt/
+https://my.archdaily.com/us/@bao-nguyen-trong
+https://www.blurb.com/user/baonguyenusd
+https://www.mojomarketplace.com/user/baonguyenusdt-WPMJvKeXx3
+https://www.doyoubuzz.com/baonguyenusdt
+https://community.atlassian.com/t5/user/viewprofilepage/user-id/4998906
+https://forums.giantitp.com/member.php?270863-baonguyenusdt
+https://gab.com/baonguyenusdt
+https://scholar.google.com/citations?user=qUY5mX8AAAAJ&hl=vi
+https://www.mapleprimes.com/users/baonguyenusdt
+https://forum.singaporeexpats.com/memberlist.php?mode=viewprofile&u=443014
+https://speakerdeck.com/baonguyenusdt
+https://gfycat.com/@baonguyenusdt
+https://www.provenexpert.com/mua-ban-usdt-baonguyenusdt-vn/
+https://www.domestika.org/pt/baonguyenusdt_vn
+http://foxsheets.com/UserProfile/tabid/57/userId/99277/Default.aspx
+https://artmight.com/user/profile/667471
+https://starity.hu/profil/333616-baonguyenusdt/
+https://knowyourmeme.com/users/mua-usdt-bep20
+https://play.eslgaming.com/player/18417181/
+https://www.bahamaslocal.com/userprofile/144211/baonguyenusdt.html
+https://git.project-hobbit.eu/baonguyenusdt.vn
+https://www.diigo.com/user/baonguyenusdt
+https://baonguyenusdt.newgrounds.com/
+http://foxsheets.statfoxsports.com/UserProfile/tabid/57/UserID/99277/Default.aspx
+https://www.spyropress.com/forums/users/baonguyenusdt/
+http://www.tienganh.com.vn/member.php?809867-baonguyenbg
+https://www.chutluulai.net/forums/node/264938
+https://vk.com/baonguyen1993
+https://www.flickr.com/people/baonguyenusdt/
+https://500px.com/p/baonguyenusdtvn
